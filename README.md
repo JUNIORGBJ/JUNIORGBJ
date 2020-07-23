@@ -1,4 +1,4 @@
-### Gilson Barbosa Junior 👋
+### Gilson Barbosa Junior :man_technologist:
 
 Olá👋 Bem-Vindo ao meu perfil.
 <!--
